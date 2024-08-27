@@ -1,2 +1,0 @@
-# bujjisaikam.in
-bujjisaikam.in
